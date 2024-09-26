@@ -5,7 +5,7 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
  👋 Hi, I’m @vitorscaff
 - 👀 I’m interested in estudos
 - 🌱 I’m currently learning fisica
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on nada
 - 📫 How to reach me number
 - 😄 Pronouns: ele
 - ⚡ Fun fact: 
